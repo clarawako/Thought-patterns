@@ -1,1 +1,1 @@
-# Thought-patterns-
+# Thought-patterns
